@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MuhammadAshikurRahman
-- 👀 I’m interested in creative app development
+- 👀 I’m interested in creative project as like app development or web development.
 - 🌱 I’m currently learning in Computer Science and Technology 
 - 💞️ I’m looking to collaborate on wifi hacking
 - 📫 How to reach me : call +8801406797200
